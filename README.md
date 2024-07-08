@@ -23,3 +23,6 @@ En Rappi, me enfrenté a desafíos únicos en el sector de delivery y logística
 Estoy emocionado por la oportunidad de contribuir a proyectos innovadores y desafiantes. Me encanta trabajar con datos y descubrir nuevas formas de mejorar procesos y tomar decisiones más informadas.
 
 ¡Gracias por visitar mi perfil! Si tienes algún proyecto interesante o simplemente quieres conectar, no dudes en contactarme.
+
+Mi mail de contacto es: lucatraversa95@gmail.com
+Para acceder a mi Linkedin presiona el siguiente [link](https://www.linkedin.com/in/luca-traversa-3368b41a4/)
